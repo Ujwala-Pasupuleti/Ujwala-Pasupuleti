@@ -5,7 +5,7 @@
                                              - Agencies needing fresh creative perspectives
                                              - Startups and entrepreneurs looking to launch their vision
 - 📫 How to reach me LINKEDIN:- https://www.linkedin.com/in/ujwala-sri-durga-pasupuleti-69ba7026b/
-- 📫 How to reach me E-mail:-ujwala.pasupuleti27@gmail.com
+- 📫 How to reach me E-mail:- ujwala.pasupuleti27@gmail.com
 - 📫 How to reach me INSTAGRAM:- https://www.instagram.com/ujwala_pasupuleti/
 - 😄 Pronouns: She
 - ⚡ Fun fact: I'm a book reader who embraks on a journey with a author.I don't read books just for the heck of it but for my personal satisfaction.
